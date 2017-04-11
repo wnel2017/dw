@@ -56,6 +56,8 @@
   <tr>
       <td align=center>
       ◆残忍超越纳粹 引发全球关注◆<br/>
+   </tr>
+  <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%A4%A7%E5%8D%AB%E6%88%98%E7%BA%A2%E9%AD%941.jpg" /></td>
    </tr>
   <tr>
