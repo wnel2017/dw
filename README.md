@@ -54,15 +54,11 @@
       ◆这种反人类罪恶至今还在中国继续◆◆<br/>
    </tr>
   <tr>
-      <td align=center>
-      ◆残忍超越纳粹 引发全球关注◆◆<br/>
-   </tr>
-  <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B42.jpg" /></td>
    </tr>
   <tr>
       <td align=center>
-      ◆共同关注并制止中共活摘器官◆<br/>
+      ◆残忍超越纳粹 引发全球关注◆◆<br/>
    </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E6%B4%BB%E6%91%982.jpg" /></td>
