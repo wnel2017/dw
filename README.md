@@ -8,8 +8,8 @@
   </tr>
   <tr>
       <td align=center>
- <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">◆大卫战红魔◆获得多项国际大奖</a> <br/>
-  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">◆大卫战红魔◆全球各界反响巨大</a> <br/>
+ ◆大卫战红魔◆<br/>
+ 获得多项国际大奖 全球各界反响巨大<br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">请您点击观看</a> <br/>
    </tr>
   <tr>
