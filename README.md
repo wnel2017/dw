@@ -26,7 +26,7 @@
 ——1999年，江泽民迫害法轮功后，为达到消灭法轮功的目的，下令可以摘取法轮学员器官。于是这种活摘行为从死刑犯延伸到了良心犯、政治犯和法轮功学员。与此同时，从2000年起，中国的器官移植业呈现出爆炸性的几倍、几十倍的增长<br/>
   </tr>
   <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B42.jpg" /></td>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E6%B4%BB%E6%91%982.jpg" /></td>
    </tr>
   <tr>
   <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
