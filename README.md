@@ -54,9 +54,6 @@
       ◆这种反人类罪恶至今还在中国继续◆◆<br/>
    </tr>
   <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E9%93%81%E8%AF%81%E5%A6%82%E5%B1%B1" /></td>
-   </tr>
-  <tr>
       <td align=center>
       ◆残忍超越纳粹 引发全球关注◆◆<br/>
    </tr>
