@@ -10,7 +10,7 @@
       <td align=center>
  ◆大卫战红魔◆<br/>
  获得多项国际大奖 全球各界反响巨大<br/>
- <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">请您点击观看</a> <br/>
+ <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">请点击在线观看</a> <br/>
    </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%A4%A7%E5%8D%AB%E6%88%98%E7%BA%A2%E9%AD%942.png" /></td>
