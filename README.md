@@ -26,7 +26,11 @@
 （英语：Davids and Goliath）<br/>
 ——是2015年皮博迪奖、2015年AIB国际调查性纪录片大奖获奖纪录片，记述诺贝尔和平奖被提名人大卫·乔高和大卫·麦塔斯对在中华人民共和国发生的活摘器官及交易进行的独立调查，揭开其反人类罪行。皮博迪奖评审评论：对错综复杂的器官交易及人体来源提出强有力的证据，包括对被强迫参与活摘良心犯器官的中国医生进行访谈。这是对强摘器官移植的恶魔般系统的一项令人毛骨悚然揭露。<br/>
 ◆本片禁止下载、录像、上传、流出。<br/>
-  </tr>
+◆更多精彩影片<br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816779&from=wnel">◆活摘十年调查</a> <br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">  ◆铁证如山◆头号史案：超越纳粹</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816787&from=wnel">◆专家讲座◆中共活摘器官 国家犯罪罪证</a> <br/>
+  </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%A4%A7%E5%8D%AB%E6%88%98%E7%BA%A2%E9%AD%941.jpg" /></td>
   <tr>
