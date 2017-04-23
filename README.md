@@ -49,7 +49,6 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816779&from=wnel">请点击在线观看</a> <br/>
    </tr>
   <tr>
-  <td align=center>
 <td align=center>
 ◆铁证如山◆头号史案：超越纳粹<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">请点击在线观看</a> <br/>
